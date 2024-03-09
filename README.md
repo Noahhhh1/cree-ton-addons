@@ -1,1 +1,1 @@
-# Cr-e-ton-addons
+# Crée ton addons
